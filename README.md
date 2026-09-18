@@ -1,0 +1,2 @@
+# picks
+Official Community For Daily Top Picks. Daily Slips With A Super Active Community. SportsBetting On MultipleDifferent Sports + Props + Moneylines And MUCH MOREMoney Is GENERATED Here.
